@@ -12,3 +12,5 @@ https://www.youtube.com/watch?v=cVHvDiip9Ss
 # 第二次上課youtube
 
 https://www.youtube.com/watch?v=zlSEy9bVra8
+
+https://www.youtube.com/watch?v=XRBAArYq1hA
