@@ -36,3 +36,5 @@ https://www.youtube.com/watch?v=OuQH-mSTOzY
 # 第六次上課youtube
 
 https://www.youtube.com/watch?v=0acmsa027DI
+
+https://www.youtube.com/watch?v=_QzuvMI_MsA
