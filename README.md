@@ -32,3 +32,7 @@ https://www.youtube.com/watch?v=boaB2S50wkk
 https://www.youtube.com/watch?v=9cuySU0kbxM
 
 https://www.youtube.com/watch?v=OuQH-mSTOzY
+
+# 第六次上課youtube
+
+https://www.youtube.com/watch?v=0acmsa027DI
