@@ -38,3 +38,9 @@ https://www.youtube.com/watch?v=OuQH-mSTOzY
 https://www.youtube.com/watch?v=0acmsa027DI
 
 https://www.youtube.com/watch?v=_QzuvMI_MsA
+
+# 第七次上課youtube
+
+https://www.youtube.com/watch?v=fJ29t3uXaRA
+
+https://www.youtube.com/watch?v=fng2eFN7244
