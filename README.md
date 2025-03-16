@@ -44,3 +44,7 @@ https://www.youtube.com/watch?v=_QzuvMI_MsA
 https://www.youtube.com/watch?v=fJ29t3uXaRA
 
 https://www.youtube.com/watch?v=fng2eFN7244
+
+# 第八次上課youtube
+
+https://www.youtube.com/watch?v=JPuyYvjBlFE
