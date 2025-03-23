@@ -54,3 +54,5 @@ https://www.youtube.com/watch?v=gJPXqZ2P4DE
 # 第九次上課youtube
 
 https://www.youtube.com/watch?v=OUHR_nYABug
+
+https://youtube.com/live/A3XzhgzrPts
