@@ -50,3 +50,7 @@ https://www.youtube.com/watch?v=fng2eFN7244
 https://www.youtube.com/watch?v=JPuyYvjBlFE
 
 https://www.youtube.com/watch?v=gJPXqZ2P4DE
+
+# 第九次上課youtube
+
+https://www.youtube.com/watch?v=OUHR_nYABug
